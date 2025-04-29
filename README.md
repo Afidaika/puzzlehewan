@@ -1,5 +1,4 @@
 # 🧩 Puzzle Jigsaw Hewan 🐾 
-https://puzzel.org/id/jigsaw/play?p=-OOQlkUtbWUhjRXraj87
 
 **Projek Kelas 2 Sekolah Dasar**
 
